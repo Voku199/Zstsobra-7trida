@@ -1,2 +1,0 @@
-# Zstsobra-7trida
-
